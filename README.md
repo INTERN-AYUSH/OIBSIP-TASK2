@@ -1,4 +1,4 @@
-# OIBSIP-TASK1
+# OIBSIP-TASK2
 Logo designing for "Singhaniya's Gold and Diamonds" focuses on creating a visual symbol.
 It exudes luxury, elegance, and sophistication.
 This involves incorporating elements that reflect the opulence of gold and the brilliance of diamonds.
